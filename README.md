@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌟 2nd Year CSE Student | Passionate about coding, UI/UX, and tech innovation | Exploring AI/ML & IoT | Building projects that matter 🚀<br>
+🌟 Pre-Final Year CSE Student | Passionate about coding, UI/UX, and tech innovation | Exploring AI/ML & IoT | Building projects that matter 🚀<br>
 
 
 ## 🌐 Socials:
